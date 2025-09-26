@@ -9,5 +9,5 @@ Here are the YouTube presentation links for each group member:
 - Hali Ding – [YouTube Link](https://youtu.be/KyYfRmUExYU)
 
 ### Pending Links
-- Bikash Shrestha – [YouTube Link]()
-- Fakriha Kamal – [YouTube Link]()
+- Bikash Shrestha – [YouTube Link](youtu.be/eofqv9FnEos)
+- Fakriha Kamal – [YouTube Link](youtu.be/eofqv9FnEos)
